@@ -1,0 +1,1 @@
+# Menjadi-Pribadi-Berintegritas-dengan-Sifat-Amanah-dan-Jujur-kelas-8
